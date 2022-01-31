@@ -10,7 +10,7 @@
 - learning coding
 
 ### What are your Hobbys?
-
+- Watching and playing football ⚽️
 
 #### What Work experience do you have?
 - Shopmanager in a Coffeeshop
