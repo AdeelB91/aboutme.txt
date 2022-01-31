@@ -10,3 +10,9 @@
 - learning coding
 
 ### What are your Hobbys?
+
+
+#### What Work experience do you have?
+- Shopmanager in a Coffeeshop
+- Supervisor/Teamleader Customerservice
+- Reservation Agent
